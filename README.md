@@ -1,0 +1,1 @@
+# Qr-code-aula-segunda-manha-09-10
